@@ -1,1 +1,0 @@
-# qomolangmah.github.io
